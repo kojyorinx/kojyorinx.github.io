@@ -1,1 +1,1 @@
-# -kojyorinx.github.io
+# kojyorinx.github.io
